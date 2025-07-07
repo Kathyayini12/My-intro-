@@ -25,7 +25,7 @@
 - Love learning and exploring new cuisines.
 
 ## 🔗 Connect with Me
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-Kathyayini%20Valluru-blue?logo=linkedin)](https://www.linkedin.com/in/kathyayini-valluru-d)
+[![LinkedIn](https://www.linkedin.com/in/kathyayini-valluru-d)
 
 ---
 
