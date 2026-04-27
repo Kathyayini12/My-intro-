@@ -22,7 +22,7 @@
 
 ## 🎧 Fun Facts / Hobbies
 - Passionate about mystery podcasts & storytelling.
-- Love learning and exploring new cuisines.
+- Love learning and exploring new technologies and cuisines.
 
 ## 🔗 Connect with Me
 [![LinkedIn](https://www.linkedin.com/in/kathyayini-valluru-d)
